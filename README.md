@@ -1,1 +1,1 @@
-# Yasin A. Chowdhury
+# YAC
